@@ -1,5 +1,6 @@
 # arthur-caruso's github profile
 ![1337-dead-hackers](https://user-images.githubusercontent.com/101721229/172076524-c75f50f1-d1cd-4eb6-b447-5b7835930378.svg)
+<br>![75648kj](https://user-images.githubusercontent.com/101721229/173660130-e7e529fc-d409-4633-a095-f984563668b5.jpg)
 <br>![vbvv](https://user-images.githubusercontent.com/101721229/172076856-9254d8b5-4046-458c-bc78-2ba2b6fb7557.gif)
 
 ## stats
